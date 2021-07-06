@@ -1,1 +1,0 @@
-Esse curso e muito confuso, parecem ser muito rapidas e não consigo encontrar um material de apoio.
